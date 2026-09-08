@@ -6,7 +6,7 @@
 <details>
    <summary>  my oomfies </summary><br>
 stupid trio: <a href=https://github.com/cryostatism>@cryostatism</a> <a href=https://github.com/KaylaPl4yz>@KaylaPl4yz</a>
-father figure : <a href=https://github.com/dr-vanta>@dr-vanta</a> 
-my son : <a href=https://github.com/Kiteplushie>@Kiteplushie</a>
-oomfies!! : <a href=https://github.com/MASQUERADE-PARTY>@MASQUERADE-PARTY</a> <a href=https://github.com/flawlesshumanity>@flawlesshumanity
+   father figure : <a href=https://github.com/dr-vanta>@dr-vanta</a> 
+   my son : <a href=https://github.com/Kiteplushie>@Kiteplushie</a>
+   oomfies!! : <a href=https://github.com/MASQUERADE-PARTY>@MASQUERADE-PARTY</a> <a href=https://github.com/flawlesshumanity>@flawlesshumanity
       </details>
