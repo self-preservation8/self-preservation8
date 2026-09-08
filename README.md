@@ -5,5 +5,5 @@
 
 <details>
    <summary>  my oomfies </summary><br>
-   text
+   stupid trio: [@cryostatism](https://github.com/cryostatism) , [@KaylaPl4ys](https://GitHub.com/cryostatism)
 </details>
