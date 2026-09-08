@@ -5,5 +5,8 @@
 
 <details>
    <summary>  my oomfies </summary><br>
-stupid trio: <a href=https://github.com/cryostatism>@cryostatism</a> <a href=https://github.com/KaylaPl4yz>@KaylaPl4yz <br> father figure : <a href=https://github.com/dr-vanta>@dr-vanta <br> my son : <a href=https://github.com/Kiteplushie>@Kiteplushie <br> oomfies!! : <a href=https://github.com/MASQUERADE-PARTY>@MASQUERADE-PARTY</a> <a href=https://github.com/flawlesshumanity>@flawlesshumanity
+stupid trio: <a href=https://github.com/cryostatism>@cryostatism</a> <a href=https://github.com/KaylaPl4yz>@KaylaPl4yz <br> 
+father figure : <a href=https://github.com/dr-vanta>@dr-vanta <br>
+my son : <a href=https://github.com/Kiteplushie>@Kiteplushie <br>
+oomfies!! : <a href=https://github.com/MASQUERADE-PARTY>@MASQUERADE-PARTY</a> <a href=https://github.com/flawlesshumanity>@flawlesshumanity
       </details>
