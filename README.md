@@ -5,5 +5,5 @@
 
 <details>
    <summary>  my oomfies </summary><br>
-   stupid trio: <a href=https://github.com/cryostatism
+   stupid trio: <a href=https://github.com/cryostatism>@cryostatism
 <details>
