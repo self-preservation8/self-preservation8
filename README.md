@@ -1,5 +1,5 @@
 ![](https://file.garden/ads8H4qfImsnsZhd/Untitled1140_0001-15-04_20260911104221.png) 
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70A3F&width=435&lines=you+know+who+I+am;trapped%2C;there+isn%E2%80%99t+an+escape)](https://git.io/typing-svg)
 <p align="center"> <img width="500" height="500" alt="image" src="https://i.postimg.cc/hjdyGMcT/image-2026-09-10-205105576.png" /> </p>
 
 thx [@title-town](https://github.com/title-town) , [@pt-friendships](https://github.com/pt-friendships) , [@pt-hall-of-media](https://github.com/pt-hall-of-media) , [@pt-players](https://github.com/pt-players) , [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) <br>
