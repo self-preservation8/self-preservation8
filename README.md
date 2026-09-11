@@ -4,7 +4,7 @@
 
 thx [@title-town](https://github.com/title-town) , [@pt-friendships](https://github.com/pt-friendships) , [@pt-hall-of-media](https://github.com/pt-hall-of-media) , [@pt-players](https://github.com/pt-players) , [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) <br>
 [![Untitled1140-0001-15-04-20260911120219.png](https://i.postimg.cc/SsPhBgVM/Untitled1140-0001-15-04-20260911120219.png)](https://postimg.cc/YGQZgf5r)
-
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Regular+400&pause=1000&color=F70A3F&width=435&lines=join+me+in+paradise+;I%E2%80%99m+no+stranger;Don%E2%80%99t+be+scared)](https://git.io/typing-svg)
 <details>
    <summary>  my oomfies </summary><br>
 𝑴𝒚 𝒔𝒕𝒖𝒑𝒊𝒅 𝒕𝒓𝒊𝒐 : <a href=https://github.com/cryostatism>@cryostatism</a> <a href=https://github.com/KaylaPl4yz>@KaylaPl4yz</a> <br> 
