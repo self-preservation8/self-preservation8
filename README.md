@@ -2,7 +2,8 @@
 
 <p align="center"> <img width="500" height="500" alt="image" src="https://i.postimg.cc/hjdyGMcT/image-2026-09-10-205105576.png" /> </p>
 
-thx [@title-town](https://github.com/title-town) , [@pt-friendships](https://github.com/pt-friendships) , [@pt-hall-of-media](https://github.com/pt-hall-of-media) , [@pt-players](https://github.com/pt-players) , [@Ponytowns-rewards](https://github.com/Ponytowns-rewards)
+thx [@title-town](https://github.com/title-town) , [@pt-friendships](https://github.com/pt-friendships) , [@pt-hall-of-media](https://github.com/pt-hall-of-media) , [@pt-players](https://github.com/pt-players) , [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) <br>
+[![Untitled1140-0001-15-04-20260911120219.png](https://i.postimg.cc/SsPhBgVM/Untitled1140-0001-15-04-20260911120219.png)](https://postimg.cc/YGQZgf5r)
 
 <details>
    <summary>  my oomfies </summary><br>
