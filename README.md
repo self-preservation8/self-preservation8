@@ -3,7 +3,8 @@
 <p align="center"> <img width="500" height="500" alt="image" src="https://i.postimg.cc/hjdyGMcT/image-2026-09-10-205105576.png" /> </p> <br>
 <details>
    <summary>  💭 </summary><br>
-${\textsf{\color{#5344C5}Im actually an Se - Ti - Fe - Ni sp 873 8w7 ESTP but I'm too lazy to change it. bye. }}$
+${\textsf{\color{#5344C5}Im actually an Se - Ti - Fe - Ni sp 873 8w7 }}$ <br>
+${\textsf{\color{#5344C5}ESTP but I'm too lazy to change it. bye. }}$
 </details>
 
 ${\textsf{\color{#C4F2EE}thx }}$ [@title-town](https://github.com/title-town) , [@pt-friendships](https://github.com/pt-friendships) , [@pt-hall-of-media](https://github.com/pt-hall-of-media) , [@pt-players](https://github.com/pt-players) , [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) <br>
