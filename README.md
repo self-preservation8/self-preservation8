@@ -31,7 +31,7 @@ ${\textsf{\color{#3124A9}iweCaution always + bday: 14th of February }}$
 [![Untitled1140-0001-15-04-20260911103153.png](https://i.postimg.cc/k4zs3SSg/Untitled1140-0001-15-04-20260911103153.png)](https://postimg.cc/qhcy2zQP) <br>
 <details>
    <summary>  ${\textsf{\color{#C4F2EE} friend group }}$ </summary> <br>
-<a href=https://github.com/liquidsmooth>@liquidsmooth</a> <br>
+<a href=https://github.com/Iiquidsmooth>@Iiquidsmooth</a> <br>
 <a href=https://github.com/Chemicalshot>@Chemicalshot</a> <br>
 <a href=https://github.com/VIXXEN>@VIXXEN</a> <br>
 <a href=https://github.com/deadbridewalking>@deadbridewalking</a> <br>
