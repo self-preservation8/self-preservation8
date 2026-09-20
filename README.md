@@ -29,4 +29,18 @@ ${\textsf{\color{#3124A9}iweCaution always + bday: 14th of February }}$
 </details> <br>
 
 [![Untitled1140-0001-15-04-20260911103153.png](https://i.postimg.cc/k4zs3SSg/Untitled1140-0001-15-04-20260911103153.png)](https://postimg.cc/qhcy2zQP) <br>
+<details>
+   <summary>  ${\textsf{\color{#C4F2EE} friend group }}$ </summary> <br>
+<a href=https://github.com/liquidsmooth>@liquidsmooth</a> <br>
+<a href=https://github.com/Chemicalshot>@Chemicalshot</a> <br>
+<a href=https://github.com/VIXXEN>@VIXXEN</a> <br>
+<a href=https://github.com/deadbridewalking>@deadbridewalking</a> <br>
+<a href=https://github.com/architectfishh>@architectfishh</a> <br>
+<a href=https://github.com/pyrionlyx>@pyrionlux</a> <br>
+<a href=https://github.com/sword-rocket>@sword-rocket</a> <br>
+<a href=https://github.com/peestainedcarpet>@peestainedcarpet</a> <br>
+<a href=https://github.com/Glistenn>@Glistenn</a> <br>
+<a href=https://github.com/princezamadorer>@princezamadorer</a> <br>
+</details> <br>
+
 [![Untitled1140-0001-15-04-20260911104216.png](https://i.postimg.cc/h4HnM3f5/Untitled1140-0001-15-04-20260911104216.png)](https://postimg.cc/jCQBSc6H)
