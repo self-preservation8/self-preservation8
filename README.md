@@ -1,17 +1,11 @@
-updating gh soon
 
-![](https://file.garden/ads8H4qfImsnsZhd/Untitled1140_0001-15-04_20260911104221.png) 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&pause=1000&color=F70A3F&width=435&lines=you+know+who+I+am;trapped%2C;there+isn%E2%80%99t+an+escape)](https://git.io/typing-svg)
-<p align="center"> <img width="500" height="500" alt="image" src="https://i.postimg.cc/hjdyGMcT/image-2026-09-10-205105576.png" /> </p> <br>
-<details>
-   <summary>  💭 </summary><br>
-${\textsf{\color{#5344C5}Im actually an Se - Ti - Fe - Ni sp 873 8w7 }}$ <br>
-${\textsf{\color{#5344C5}ESTP but I'm too lazy to change it. bye. }}$
-</details>
+[![IMG-5113.gif](https://i.postimg.cc/6q7wp92T/IMG-5113.gif)](https://postimg.cc/30HzLQZH) <br>
+[![IMG-5114.gif](https://i.postimg.cc/rpFpL2JH/IMG-5114.gif)](https://postimg.cc/3kVhg6zj)
 
-${\textsf{\color{#C4F2EE}thx }}$ [@title-town](https://github.com/title-town) , [@pt-friendships](https://github.com/pt-friendships) , [@pt-hall-of-media](https://github.com/pt-hall-of-media) , [@pt-players](https://github.com/pt-players) , [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) <br>
-[![Untitled1140-0001-15-04-20260911120219.png](https://i.postimg.cc/SsPhBgVM/Untitled1140-0001-15-04-20260911120219.png)](https://postimg.cc/YGQZgf5r)
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Regular+400&pause=1000&color=F70A3F&width=435&lines=join+me+in+paradise+;I%E2%80%99m+no+stranger;Don%E2%80%99t+be+scared)](https://git.io/typing-svg)
+   [![Untitled1214-20260929200413.png](https://i.postimg.cc/0y9kp1Lz/Untitled1214-20260929200413.png)](https://postimg.cc/ykrCHt6K) 
+   
+   ${\textsf{\color{#C4F2EE}thx }}$ [@title-town](https://github.com/title-town) , [@pt-friendships](https://github.com/pt-friendships) , [@pt-hall-of-media](https://github.com/pt-hall-of-media) , [@pt-players](https://github.com/pt-players) , [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) 
+   
 <details>
    <summary>  ${\textsf{\color{#C4F2EE}my oomfies }}$ </summary><br>
 ${\textsf{\color{#C4F2EE}𝑴𝒚 𝒔𝒕𝒖𝒑𝒊𝒅 𝒕𝒓𝒊𝒐 : }}$ <a href=https://github.com/cryostatism>@cryostatism</a> <a href=https://github.com/KaylaPl4yz>@KaylaPl4yz</a> <br> 
@@ -23,14 +17,13 @@ ${\textsf{\color{#3124A9}𝒐𝒐𝒎𝒇𝒊𝒆𝒔 : }}$ <a href=https://gith
       </details> <br>
 <details>
    <summary>  ${\textsf{\color{#C4F2EE}easy to read }}$ </summary> <br>
-${\textsf{\color{#C4F2EE}17 yrs , they / them , nonbinary }}$ <br>
-${\textsf{\color{#6A70D9}special mentions to... H, K, Z, I, T }}$ <br>
-${\textsf{\color{#5F5BD9}ESTP + no dni, I block freely }}$ <br>
-${\textsf{\color{#5344C5}sp 873 8w7 }}$ <br>
-${\textsf{\color{#3124A9}iweCaution always + bday: 14th of February }}$
+${\textsf{\color{#C4F2EE}Camryn , they / them , 17 }}$ <br>
+${\textsf{\color{#6A70D9}I block freely always iweCau I bite }}$ <br>
+${\textsf{\color{#5F5BD9}-15 iwc , Awze fg❤️ }}$ <br>
+${\textsf{\color{#5344C5}I came to visit you, Creator! }}$ <br>
+${\textsf{\color{#3124A9}chol-mel sp/sx 874 8w7 ESFP VFLE }}$
+${\textsf{\color{#3124A9}Se - Fi - Te - Ni }}$
 </details> <br>
-
-[![Untitled1140-0001-15-04-20260911103153.png](https://i.postimg.cc/k4zs3SSg/Untitled1140-0001-15-04-20260911103153.png)](https://postimg.cc/qhcy2zQP) <br>
 <details>
    <summary>  ${\textsf{\color{#C4F2EE} friend group }}$ </summary> <br>
 <a href=https://github.com/Iiquidsmooth>@Iiquidsmooth</a> <br>
@@ -43,6 +36,4 @@ ${\textsf{\color{#3124A9}iweCaution always + bday: 14th of February }}$
 <a href=https://github.com/peestainedcarpet>@peestainedcarpet</a> <br>
 <a href=https://github.com/Glistenn>@Glistenn</a> <br>
 <a href=https://github.com/princezamadorer>@princezamadorer</a> <br>
-</details> <br>
-
-[![Untitled1140-0001-15-04-20260911104216.png](https://i.postimg.cc/h4HnM3f5/Untitled1140-0001-15-04-20260911104216.png)](https://postimg.cc/jCQBSc6H)
+</details> 
