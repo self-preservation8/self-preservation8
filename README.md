@@ -5,7 +5,6 @@ wip I'll fix this later.
 
    [![Untitled1214-20260929200413.png](https://i.postimg.cc/0y9kp1Lz/Untitled1214-20260929200413.png)](https://postimg.cc/ykrCHt6K) 
    
-   ${\textsf{\color{#C4F2EE}thx }}$ [@title-town](https://github.com/title-town) , [@pt-friendships](https://github.com/pt-friendships) , [@pt-hall-of-media](https://github.com/pt-hall-of-media) , [@pt-players](https://github.com/pt-players) , [@Ponytowns-rewards](https://github.com/Ponytowns-rewards) 
    
 <details>
    <summary>  ${\textsf{\color{#C4F2EE}my oomfies }}$ </summary><br>
