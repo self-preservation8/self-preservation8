@@ -15,7 +15,7 @@ ${\textsf{\color{#3124A9}chol-mel sp/sx 874 8w7 ESFP VFLE }}$
 ${\textsf{\color{#3124A9}Se - Fi - Te - Ni }}$
 </details> <br>
 <details>
-   <summary>  ${\textsf{\color{#C4F2EE} friend group }}$ </summary> <br>
+   <summary>  ${\textsf{\color{#C4F2EE} people I haven't blocked yet }}$ </summary> <br>
 <a href=https://github.com/Iiquidsmooth>@Iiquidsmooth</a> <br>
 <a href=https://github.com/Chemicalshot>@Chemicalshot</a> <br>
 <a href=https://github.com/VIXXEN>@VIXXEN</a> <br>
